@@ -64,7 +64,7 @@ International Islamic University Malaysia (IIUM)
 
 ## 📫 Connect with Me  
 
-- 💼 [LinkedIn](https://www.linkedin.com/adlynadika)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/adlynadika/)  
 - 📧 Email: adlynadika@gmail.com  
 
 ---
